@@ -213,3 +213,37 @@ I'm an emro
 Emro is an acronym that means elite male rescue officer
 
 I'm a rescue officer in the IRS
+
+## Chapter four
+
+I want to talk a little more about vocabulary
+
+So far we have introduced the phrases "public record" and "risk"
+
+I have another phrase I want to introduce
+
+But there's a caveat
+
+I'll tell you the phrase first and then I'll tell you the caveat
+
+In the IRS we learn the phrase "fair background check"
+
+I claimed that Donald Trump is a kidnapper, a rapist, and a torture criminal
+
+A fair background check confirms that what I'm saying is true
+
+The caveat is this...
+
+I don't want anyone to get hurt by trying to do a fair background check when they're not in a position to do a fair background check
+
+There are many people reading this who are in a position to do a fair background check
+
+I claimed that Donald Trump kidnapped over a thousand women in the American intelligence community
+
+I claimed that Donald Trump kidnapped female intelligence officers from foreign countries
+
+I have proof that this happened
+
+My reader can measure risk... the risk is over 95%
+
+A fair background check confirms that what I am saying is true
