@@ -146,7 +146,7 @@ In fact, Terence Tao has suffered impersonation attacks for many years
 
 I talk to Terence Tao... he's a father to me
 
-I think that Terence Tao lost control of his email account at some point in the nine years
+I think that Terence Tao lost control of his email account at some point in the past nine years
 
 I have reason to believe that Terence Tao did not have control of his email account earlier this year
 
